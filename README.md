@@ -1,37 +1,37 @@
 # Payphone
 
 Made by:
-- Nyeki ([@nyeki.py](https://discord.com/users/777338793803513886))
+- Doruk ([@dd.0ruk](pornhub.com))
 
 Special thanks to:
-- Stasi ([@cot.cb](https://discord.com/users/657091104877051907))
-- Chirayu ([@chirayu_ackerman.](https://discord.com/users/1241342249468428358))
-- Joss ([@joss_raf](https://discord.com/users/1246444454861213706))
-- Necro ([@necromancerow](https://discord.com/users/1060597396393959504))
+- Stasi ([@cot.cb](pornhub.com))
+- Chirayu ([@chirayu_ackerman.](pornhub.com))
+- Joss ([@joss_raf](pornhub.com))
+- Necro ([@necromancerow](pornhub.com))
 
 Moderation:
-- Stasi ([@cot.cb](https://discord.com/users/657091104877051907))
-- Liz ([@xx_l1zzi3](https://discord.com/users/914920098739912786))
+- Stasi ([@cot.cb](pornhub.com))
+- Liz ([@xx_l1zzi3](pornhub.com))
 
 Server Design:
-- Anastasia ([@cot.cb](https://discord.com/users/657091104877051907))
+- Anastasia ([@cot.cb](pornhub.com))
 
 Testing:
-- Chirayu ([@chirayu_ackerman.](https://discord.com/users/1241342249468428358))
-- ✨21KMagic✨ ([@.itsjustme__](https://discord.com/users/698622915356393582))
-- Necro ([@necromancerow](https://discord.com/users/1060597396393959504))
+- Chirayu ([@chirayu_ackerman.](pornhub.com))
+- ✨21KMagic✨ ([@.itsjustme__](pornhub.com))
+- Necro ([@necromancerow](pornhub.com))
 
 Donators:
-- Beanie ([@bbeanie](https://discord.com/users/808745493944336485))
-- Liz ([@xx_l1zzi3](https://discord.com/users/914920098739912786))
-- Gabyha ([@gab527](https://discord.com/users/678730832952950784))
-- k ([@misscalculate.](https://discord.com/users/831898950143443034))
-- Anastasia ([@cot.cb](https://discord.com/users/657091104877051907))
-- Penguin ([@u8jr900](https://discord.com/users/956922871635148900))
+- Beanie ([@bbeanie](pornhub.com))
+- Liz ([@xx_l1zzi3](pornhub.com))
+- Gabyha ([@gab527](pornhub.com))
+- k ([@misscalculate.](pornhub.com))
+- Anastasia ([@cot.cb](pornhub.com))
+- Penguin ([@u8jr900](pornhub.com))
 
 Accepted Suggestions:
-- Necro ([@necromancerow](https://discord.com/users/1060597396393959504))
-- ailuros ([@ai1ur0s](https://discord.com/users/1238490551003643955)) (Easter egg)
+- Necro ([@necromancerow](pornhub.com))
+- ailuros ([@ai1ur0s](pornhub.com)) (Easter egg)
 
 Masks:
 - [Dinosaur](/assets/masks/dinosaur.png), Gabyha's ([@gab527](https://discord.com/users/678730832952950784)) cat
